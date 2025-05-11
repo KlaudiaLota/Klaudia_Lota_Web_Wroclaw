@@ -1,5 +1,3 @@
-# My shop
-
 *English version below ↓*
 
 ## Opis
